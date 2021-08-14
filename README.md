@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there <img src="https://raw.githubusercontent.com/Kamillaova/Kamillaova/main/wave.gif" width="15px">
 
 🗿🗿🗿
 
